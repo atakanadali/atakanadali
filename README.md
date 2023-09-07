@@ -1,5 +1,5 @@
 <h1 align="center">Hi, I'm Atakan Adalı</h1>
-<h3 align="center">A passionate Electrical Electronics Engineer</h3>
+<h3 align="center">Electrical Electronics Engineer</h3>
 
 - 🌱 I’m currently learning **Machine Learning**
 
