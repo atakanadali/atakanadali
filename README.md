@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **ihsanatakanadali@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/drive/folders/1AnEaTvd_6cPDCJB_eaPU7PDLEX1XSOrk?usp=sharing](https://drive.google.com/drive/folders/1AnEaTvd_6cPDCJB_eaPU7PDLEX1XSOrk?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/drive/folders/1AnEaTvd_6cPDCJB_eaPU7PDLEX1XSOrk?usp=sharing](https://tinyurl.com/atakanadaliCV)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
